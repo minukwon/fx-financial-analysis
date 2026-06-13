@@ -1,0 +1,1 @@
+"#FX Financial Analysis" 
